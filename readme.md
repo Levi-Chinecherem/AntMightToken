@@ -45,6 +45,10 @@ Inspired by these remarkable ants, a visionary developer (Levi CHinecherem Chidi
 
 And so, the Antmight token continued its journey, leaving footprints in the digital soil. Its story echoed across the blockchain, inspiring others to recognize that even the smallest creatures could achieve greatness.
 
+Ants are known for their smart moves and wisdom, which makes them know when to gather their food and when to eat, so the Antmight soldiers are embeded with such wisdom to hold the token.
+
+Also known for oneness which is why they walk together and grow together so also the Antmight solders are a community with the interest of one another at heart as they grow and make profit together.
+
 Remember, dear holder, you are an ant—an Antmight. Carry your tokens with pride, for within them lies the power to move mountains. 🐜💪🚀
 
 ## Features
